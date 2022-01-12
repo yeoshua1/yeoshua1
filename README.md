@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yeoshua1
-- 👀 I’m interested in nothinh
+- 👀 I’m interested in nothing
 - 🌱 I’m currently learning programing but im retarded
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me there is no need im to retarded
